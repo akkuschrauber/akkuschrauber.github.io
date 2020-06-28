@@ -15,6 +15,6 @@ Er nimmt einen Posten als Tribun in Thrakien an. Dort liegt Rebellion in der Luf
 * Konsul
 * Kaiser
 
-!„Geld stinkt nicht!“
+! „Geld stinkt nicht!“
 
 Quelle: https://beruhmte-zitate.de/autoren/vespasian/
