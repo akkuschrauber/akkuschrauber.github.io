@@ -16,3 +16,5 @@ Er nimmt einen Posten als Tribun in Thrakien an. Dort liegt Rebellion in der Luf
 * Kaiser
 
 > "Geld stinkt nicht"
+
+<img src="https://images-na.ssl-images-amazon.com/images/I/51dLWSvjwJL._SX327_BO1,204,203,200_.jpg"/>
